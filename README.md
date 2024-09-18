@@ -1,4 +1,4 @@
--  Hi, I’m @bagel-idk
+-  Hi, I’m @lostmydogg
 -  I’m interested in: writing, drawing and other stuff
 -  I’m currently learning, 
 -  I’m looking to collaborate on ...
